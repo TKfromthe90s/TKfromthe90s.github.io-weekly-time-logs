@@ -1,4 +1,4 @@
-## Analysis Report
+## Weekly Time Logs
 
 Coming Soon!
 
