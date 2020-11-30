@@ -18,7 +18,7 @@
 
 [Time Log 9](https://tkfromthe90s.github.io/TKfromthe90s.github.io-weekly-time-log-9/)
 
-[Time Log 10](https://tkfromthe90s.github.io/TKfromthe90s.github.io-weekly-time-log-9/)
+[Time Log 10](https://tkfromthe90s.github.io/TKfromthe90s.github.io-weekly-time-log-10/)
 
 
 [Return to Homepage](https://tkfromthe90s.github.io/)
